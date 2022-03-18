@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Toriviv.github.io/rsschool-cv/cv
