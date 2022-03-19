@@ -1,1 +1,1 @@
-# rsschool-cv
+https://toriviv.github.io/rsschool-cv/
